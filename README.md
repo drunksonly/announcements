@@ -1,12 +1,16 @@
 ## Welcome to the Drunks Only Annoucements page
 
-You can use the [editor on GitHub](https://github.com/drunksonly/announcements/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+This is a test website for Drunks Only Announcements.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+In case of a contagious virus or other emergency, 
+information as to what Drunks Only will do as far as 
+using an alternate meeting place, creating a virtual 
+meeting place, or displaying other announcements 
+would be displayed here.
 
-### Markdown
+### Details
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+This is where the details would be in case of an emergency.
 
 ```markdown
 Syntax highlighted code block
