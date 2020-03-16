@@ -14,7 +14,7 @@ Please do not hold meetings in violation of this policy, as this could jeopardiz
 
 __Bookmark this website — it will be updated as more information becomes available.__
 
-## Other Options
+## Other Options...
 
 Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to a face-to-face meeting:
 
