@@ -24,9 +24,9 @@ Numerous other meetings have closed down as well.  Here are some suggestions on 
 - Call San Diego AA Central Office at 619-265-8762
 - Write, read the Big Book, pray, call your sponsor or sponsees
 
-## Don't Drink !!!
+## Don't Drink!!!
 
-No matter what, you do __not__ have to drink - call someone first!
+No matter what, **_you do not have to drink_** - call someone first!
 - San Diego AA Central Office - 619-265-8762
 - National Suicide Prevention Hotline - 800-273-8255
 
