@@ -1,6 +1,6 @@
-# The Official Drunks Only Annoucements Page
+# Drunks Only San Diego Annoucements Page
 
-This is the announcement page for Drunks Only (D.O.) San Diego.
+This is the official announcement page for Drunks Only, San Diego.
 
 In case of a contagious virus or other emergency, 
 information as to what Drunks Only will do as far as 
