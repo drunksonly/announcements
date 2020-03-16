@@ -12,7 +12,7 @@ __Additionally — we cannot hold meetings on Linda Vista park grounds, even out
 
 Please do not hold meetings in violation of this policy, as this could jeopardize our relationship with the City of San Diego.
 
-__Bookmark this website — it will be updated as more information is made available.__
+__Bookmark this website — it will be updated as more information becomes available.__
 
 ## Other Options
 
