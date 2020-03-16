@@ -1,4 +1,4 @@
-# The Drunks Only San Diego Annoucements Page
+# Drunks Only San Diego
 
 ## Sunday, March 15th, 2020
 
