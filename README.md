@@ -19,14 +19,14 @@ __Bookmark this website — it will be updated as more information is made avail
 Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to a face-to-face meeting:
 
 - Call someone on the Phone List – someone you know, or someone new
-- Join an online meeting, like the ones offered at InTheRooms.com
+- Join an online meeting, like the ones offered at [InTheRooms.com]
 - Join the D.O. Facebook Group and participate in discussion there
 - Call San Diego AA Central Office at 619-265-8762
 - Write, read the Big Book, pray, call your sponsor or sponsees
 
-## Don't Drink!!!
+## Above All, Don't Drink!!!
 
-No matter what, **_you do not have to drink_** – __call someone first!!__
+__No matter what,__ **_you do not have to drink_** – __call someone first!!__
 - __San Diego AA Central Office – 619-265-8762__
 - __National Suicide Prevention Hotline – 800-273-8255__
 
