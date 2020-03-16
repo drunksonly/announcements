@@ -1,4 +1,4 @@
-# Drunks Only San Diego
+# <p align="center"> Drunks Only San Diego </p>
 
 ## Sunday, March 15th, 2020
 
