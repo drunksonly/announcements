@@ -6,11 +6,11 @@ __This is the official announcement page for Drunks Only.__
 
 __The regular meeting of Drunks Only is hereby cancelled until further notice.__  This is due to the Linda Vista Recreation Center and associated park areas closing as a result of the COVID-19 virus.  
 
-The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at the absolute earliest.__  
+The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at minimum.__  
 
-__Additionally — and specifically — we cannot hold meetings on Linda Vista park grounds, even outside.__  This mandate has come directly from Linda Vista Recreation Center staff.  
+__Additionally — we cannot hold meetings on Linda Vista park grounds, even outside.__  This mandate has come from Linda Vista Recreation Center staff.  
 
-Please do not hold meetings in violation of this policy, as this could jeopardize our very good relationship with the City of San Diego.
+Please do not hold meetings in violation of this policy, as this could jeopardize our relationship with the City of San Diego.
 
 __Bookmark this website — it will be updated as more information is made available.__
 
@@ -22,7 +22,7 @@ Numerous other meetings have closed down as well.  Here are some suggestions on 
 - Join an online meeting, like the ones offered at __[InTheRooms.com](InTheRooms.com)__
 - Join the __[D.O. Facebook Group](https://www.facebook.com/groups/drunksonly/)__ and participate in discussion there
 - Call San Diego AA Central Office at 619-265-8762
-- Write, read the Big Book, pray, call your sponsor or sponsees 
+- Pray, write, read the Big Book, or call your sponsor or sponsee 
 
 ## Above All, Don't Drink!!!
 
