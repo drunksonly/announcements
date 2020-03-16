@@ -22,7 +22,7 @@ Numerous other meetings have closed down as well.  Here are some suggestions on 
 - Join an online meeting, like the ones offered at __[InTheRooms.com](InTheRooms.com)__
 - Join the __[D.O. Facebook Group](https://www.facebook.com/groups/drunksonly/)__ and participate in discussion there
 - Call San Diego AA Central Office at 619-265-8762
-- Write, read the Big Book, pray, call your sponsor or sponsees
+- Write, read the Big Book, pray, call your sponsor or sponsees 
 
 ## Above All, Don't Drink!!!
 
