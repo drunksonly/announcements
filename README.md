@@ -19,7 +19,7 @@ __Bookmark this website — it will be updated as more information is made avail
 Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to a face-to-face meeting:
 
 - Call someone on the Phone List – someone you know, or someone new
-- Join an online meeting, like the ones offered at __[InTheRooms.com]__(InTheRooms.com)
+- Join an online meeting, like the ones offered at __[InTheRooms.com](InTheRooms.com)__
 - Join the D.O. Facebook Group and participate in discussion there
 - Call San Diego AA Central Office at 619-265-8762
 - Write, read the Big Book, pray, call your sponsor or sponsees
