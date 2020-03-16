@@ -1,6 +1,6 @@
-## Welcome to the Drunks Only Annoucements page
+# The Official Drunks Only Annoucements Page
 
-This is a test website for Drunks Only Announcements.
+This is the announcement page for Drunks Only (D.O.) San Diego.
 
 In case of a contagious virus or other emergency, 
 information as to what Drunks Only will do as far as 
@@ -8,7 +8,7 @@ using an alternate meeting place, creating a virtual
 meeting place, or displaying other announcements 
 would be displayed here.
 
-### Details
+## Details
 
 This is where the details would be in case of an emergency.
 
