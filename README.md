@@ -16,7 +16,7 @@ __Bookmark this website — it will be updated as more information becomes avail
 
 ## Other Options...
 
-Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to a face-to-face meeting:
+Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to face-to-face meetings:
 
 - Call someone on the Phone List – someone you know, or someone new
 - Join an online meeting, like the ones offered at __[InTheRooms.com](InTheRooms.com)__
