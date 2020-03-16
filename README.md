@@ -2,46 +2,24 @@
 
 ## Sunday, March 15th, 2020
 
-This is the official announcement page for Drunks Only, San Diego.
+__This is the official announcement page for Drunks Only, San Diego.__
 
 __The regular meeting of Drunks Only is hereby cancelled until further notice.__  This is due to the Linda Vista Recreation Center and associated park areas closing as a result of the COVID-19 virus.  
 
-The Linda Vista Recreation Center will remain closed until Monday, April 6th, at the absolute earliest.  
+The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at the absolute earliest.__  
 
 __Additionally — and specifically — we cannot hold meetings on Linda Vista park grounds, even outside.__  This mandate has come directly from Linda Vista Rec. Center staff.  
 
 Please do not hold meetings in violation of this policy, as this could jeopardize our very good relationship with the City of San Diego.
 
-Bookmark this website — it will be updated as more information is made available.
+__Bookmark this website — it will be updated as more information is made available.__
 
-## Details
+## Other Options
 
-This is where the details would be in case of an emergency.
+Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to a face-to-face meeting:
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/drunksonly/announcements/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+- Call someone on the Phone List - someone you know, or someone new
+- Join an online meeting, like the ones offered at InTheRooms.com
+- Join the D.O. Facebook Group and participate in discussion there
+- Call San Diego AA Central Office at 619-265-8762
+- Write, read the Big Book, pray, call your sponsor, or sponsees
