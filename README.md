@@ -8,7 +8,7 @@ __The regular noon meeting of Drunks Only is hereby cancelled until further noti
 
 The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at minimum.__  
 
-__Additionally — we cannot hold meetings anywhere on Linda Vista park grounds, even outside.__  This mandate has come from Linda Vista Recreation Center staff.  
+__To be clear — we cannot hold meetings anywhere on Linda Vista park grounds, even outside.__  This mandate has come from Linda Vista Recreation Center staff.  
 
 Please do not hold meetings in violation of this policy, as this could jeopardize our relationship with the City of San Diego.
 
