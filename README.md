@@ -1,4 +1,4 @@
-# Drunks Only San Diego Annoucements Page
+# The Drunks Only San Diego Annoucements Page
 
 This is the official announcement page for Drunks Only, San Diego.
 
