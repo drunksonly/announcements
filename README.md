@@ -1,12 +1,11 @@
 # The Drunks Only San Diego Annoucements Page
 
-This is the official announcement page for Drunks Only, San Diego.
+This is the official announcement page for Drunks Only in San Diego.
 
-In case of a contagious virus or other emergency, 
-information as to what Drunks Only will do as far as 
-using an alternate meeting place, creating a virtual 
-meeting place, or displaying other announcements 
-would be displayed here.
+The regular meeting of Drunks Only is hereby cancelled until further notice, due to the Linda Vista Recreation Center and its associated park areas closing due to the COVID-19 virus.  The Rec. Center will remain closed until Monday, April 6th, at the earliest.  
+
+
+This means that not only are we not able to hold meetings inside, but we are also barred from holding meetings outside on park grounds.  This mandate has come directly from Linda Vista Rec. Center staff.
 
 ## Details
 
