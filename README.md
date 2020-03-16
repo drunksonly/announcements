@@ -8,11 +8,11 @@ __The regular meeting of Drunks Only is hereby cancelled until further notice.__
 
 The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at the absolute earliest.__  
 
-__Additionally — and specifically — we cannot hold meetings on Linda Vista park grounds, even outside.__  This mandate has come directly from Linda Vista Rec. Center staff.  
+__Additionally — and specifically — we cannot hold meetings on Linda Vista park grounds, even outside.__  This mandate has come directly from Linda Vista Recreation Center staff.  
 
 Please do not hold meetings in violation of this policy, as this could jeopardize our very good relationship with the City of San Diego.
 
-__Bookmark this website — it will be updated regularly as more information is made available.__
+__Bookmark this website — it will be updated as more information is made available.__
 
 ## Other Options
 
@@ -26,4 +26,7 @@ Numerous other meetings have closed down as well.  Here are some suggestions on 
 
 ## Don't Drink !!!
 
-You do not have to drink - call someone first!
+No matter what, you do __not__ have to drink - call someone first!
+- San Diego AA Central Office - 619-265-8762
+- National Suicide Prevention Hotline - 800-273-8255
+
