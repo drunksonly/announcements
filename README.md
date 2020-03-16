@@ -4,7 +4,7 @@
 
 __This is the official announcement page for Drunks Only.__
 
-__The regular meeting of Drunks Only is hereby cancelled until further notice.__  This is due to the Linda Vista Recreation Center and associated park areas closing as a result of the COVID-19 virus.  
+__The regular noon meeting of Drunks Only is hereby cancelled until further notice.__  This is due to the Linda Vista Recreation Center and associated park areas closing as a result of the COVID-19 virus.  
 
 The Linda Vista Recreation Center will remain closed until __Monday, April 6th, at minimum.__  
 
