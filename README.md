@@ -19,6 +19,7 @@ __Bookmark this website — it will be updated as more information becomes avail
 Numerous other meetings have closed down as well.  Here are some suggestions on what to do other than going to face-to-face meetings:
 
 - Call someone on the Phone List – someone you know, or someone new
+- Listen to free speaker MP3s at __[XA Speakers](https://xa-speakers.org/pafiledb.php)__ – over 3,000 available!
 - Join an online meeting, like the ones offered at __[In The Rooms](https://www.InTheRooms.com)__
 - Join the __[D.O. Facebook Group](https://www.facebook.com/groups/drunksonly/)__ and participate in discussion there
 - Call San Diego AA Central Office at 619-265-8762
