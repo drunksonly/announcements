@@ -1,8 +1,7 @@
 # Drunks Only San Diego
-<div align="center">
 
 ## Sunday, March 15th, 2020
-</div>
+
 This is the official announcement page for Drunks Only, San Diego.
 
 __The regular meeting of Drunks Only is hereby cancelled until further notice.__  This is due to the Linda Vista Recreation Center and associated park areas closing as a result of the COVID-19 virus.  
