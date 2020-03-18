@@ -1,6 +1,6 @@
 # Drunks Only San Diego
 
-## Wednesday, March 18th, 2020 – UPDATE !!
+## Wednesday, March 18th, 2020 – UPDATE !!!
 
 __D.O. has a recurring online Zoom meeting every day at 12 noon.__  
 
