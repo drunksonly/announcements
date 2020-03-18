@@ -6,7 +6,7 @@ __D.O. has a recurring online Zoom meeting every day at 12 noon.__
 
 __Topic:__ DO-LITE
 
-__Time:__ 12 noon, 7 days per week, until further notice
+__Time:__ 12 Noon to 1:00 PM, 7 days per week, until further notice
 
 __Join Zoom Meeting here:  [D.O. Zoom Meeting](https://zoom.us/j/4436682166)__
 
