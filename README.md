@@ -8,7 +8,7 @@ __Topic:__ DO-LITE
 
 __Time:__ 12 Noon to 1:00 PM, 7 days per week, until further notice
 
-__Join Meeting here:  [D.O. Zoom Meeting](https://zoom.us/j/4436682166)__
+__Join Meeting Here:  [D.O. Zoom Meeting](https://zoom.us/j/4436682166)__
 
 __Meeting ID:__ 443 668 2166
 
