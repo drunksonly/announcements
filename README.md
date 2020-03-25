@@ -1,5 +1,19 @@
 # Drunks Only San Diego
 
+## Wednesday, March 25th, 2020 – UPDATE !!!
+
+__D.O.'s recurring online Zoom meeting has updated info.__  
+
+__Topic:__ Drunks Only Online
+
+__Time:__ 12 Noon to 1:00 PM, 7 days per week, until further notice
+
+__Join Meeting Here:  [D.O. Zoom Meeting](https://zoom.us/j/629462689)__
+
+__Meeting ID:__ 629 462 689
+
+Make sure to __Bookmark This Website__ — it will be updated as more information becomes available.
+
 ## Wednesday, March 18th, 2020 – UPDATE !!!
 
 __D.O. has a recurring online Zoom meeting every day at 12 noon.__  
