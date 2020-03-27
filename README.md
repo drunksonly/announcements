@@ -1,5 +1,13 @@
 # Drunks Only San Diego
 
+## Friday, March 27th, 2020 – UPDATE !!!
+
+__D.O. has a Venmo for the 7th Tradition__
+
+In your Venmo app, search for __@drunks-only__
+
+The last four digits of the verification are __7309__ 
+
 ## Wednesday, March 25th, 2020 – UPDATE !!!
 
 __D.O.'s recurring online Zoom meeting has updated info.__  
